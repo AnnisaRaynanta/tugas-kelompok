@@ -1,2 +1,2 @@
 # tugas-kelompok
-tugas kelompok dhedi dan annisa
+tugas kelompok dhendi dan annisa
